@@ -1,6 +1,6 @@
 # Xie Luhui
 
-Male | 32 | 10+ years' experience | Master's degree | 15012997546 | 540484990@qq.com | Senior iOS Engineer
+Male | 10+ years' experience | Master's degree | 15012997546 | 540484990@qq.com | Senior iOS Engineer
 
 ## Education
 
